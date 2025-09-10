@@ -1,5 +1,5 @@
 # 💫 About Me
-⚡ Currently working on a model to assist in agricultural advancements.<br>🌱 Interested in leveraging green skills such as environmental modeling and renewable energy integration.<br>🌍 Open to contributing to any exciting venture, from green technologies to cutting-edge research.
+⚡ Moving in the direction of technology that protects and empowers.<br>🌱 Interested in leveraging green skills such as environmental modeling and renewable energy integration.<br>🌍 Open to contributing to any exciting venture, from green technologies to cutting-edge research.
 
 
 ## 🌐 Socials
